@@ -1,0 +1,1 @@
+# majinstz.github.io
